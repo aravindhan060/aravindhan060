@@ -6,4 +6,4 @@
 - 📫 How to reach me: https://www.linkedin.com/feed/ 
 - 😄 2020 Goals: To get skilled in all Design softwares.
 - ⚡ Fun fact:I like to play games apart from Designing.
--->
+
