@@ -1,4 +1,4 @@
-### Hi there , This is Aravindhan- Design Engineer 👋
+### Hi there , This is Aravindhan- aka Design Engineer 👋
 - 🔭 I’m currently doing my B.E.
 - 🌱 I’m currently learning Pytho and Catia !
 - 👯 I’m looking for Interships and Projects.
